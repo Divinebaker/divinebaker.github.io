@@ -1,3 +1,5 @@
+![logo](https://i.ibb.co/Gc8dcmD/DB-PNG.png)
+
 # 🎂🎂DIVINE BAKERS🎂🎂
 ## Hello, This is Geetanjali Walyat, Owner of an independent cake business. I make homemade cakes in all the flavors for all the occasions. my cooking embraces taste and flavor. Here's some examples of my work:
 
