@@ -17,7 +17,11 @@
 ### 5.
 ![Cake5](https://i.ibb.co/P5c75CZ/img2.jpg)
 =====================================================
+#### IF YOU LIKED THESE CAKES, YOU CAN CONTACT ME ON INSTAGRAM AND WHATSAPP BY CLICKING FOLLOWING ICONS
 
+[![whatsapp](https://i.ibb.co/vxQm1Nd/wsapp-logo.png)](wa.me/+918872800512)
+
+[![instagram](https://i.ibb.co/vLVtW6N/instagram-logo.png)](https://instagram.com/divine._.bakers?igshid=YmMyMTA2M2Y)
 
 
 
